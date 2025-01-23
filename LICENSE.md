@@ -1,1 +1,1 @@
- Laser © 2023 by Constantino javier Negrete Barranco is licensed under CC BY-NC-SA 4.0 
+ Laser © 2023 by Constantino Javier Negrete Barranco is licensed under CC BY-NC-SA 4.0 
